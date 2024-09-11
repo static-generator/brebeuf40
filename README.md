@@ -1,9 +1,7 @@
 # G9 - Brebeuf
-Asher Jiann Carlo Zafe | CLASS NUMBER 40
-Dayangdang St., Naga City, Camarines Sur, Philippines
+Name: Asher Jiann Carlo Zafe
+Address: Dayangdang St., Naga City, Camarines Sur, Philippines
+Birthday: May 03, 2010 (14 yrs. Old)
+
 ---
-Social Media
--  [Facebook]
--  [Discord]
--  [Twitter/X]
--  
+PRESCHOOL:
